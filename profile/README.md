@@ -8,7 +8,7 @@ There are many such aunties who need their life partner living in India and Paki
 
 - **Aunty Hub** 👉 [Join Now](https://tazagame.site/)
 - **Aunties Group** 👉 [Join Now](https://tazagame.site/)
-- **Delhi Hub** 👉 [Join Now](https://tazagame.site/)
+- **Delhi Hub** 👉 [Join Now](https://tazagame.site/350-girls-whatsapp-number-for-friendship/)
 - **All Friends** 👉 [Join Now](https://tazagame.site/)
 - **Mumbai Aunty** 👉 [Join Now](https://tazagame.site/)
 
