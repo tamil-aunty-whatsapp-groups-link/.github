@@ -6,18 +6,18 @@ There are many such aunties who need their life partner living in India and Paki
 
 ## List of the tamil aunty whatsapp groups link
 
-- **Aunty Hub** 👉 [Join Now](https://tazagame.site/)
+- **Aunty Hub** 👉 [Join Now](https://tazagame.site/girls-whatsapp-groups-for-partnership/)
 - **Aunties Group** 👉 [Join Now](https://tazagame.site/)
 - **Delhi Hub** 👉 [Join Now](https://tazagame.site/350-girls-whatsapp-number-for-friendship/)
 - **All Friends** 👉 [Join Now](https://tazagame.site/)
-- **Mumbai Aunty** 👉 [Join Now](https://tazagame.site/)
+- **Mumbai Aunty** 👉 [Join Now](https://tazagame.site/girls-whatsapp-groups-for-partnership/)
 
 ## Telugu aunty whatsapp group
 
-- **Live Aunty** 👉 [Join Now](https://tazagame.site/)
+- **Live Aunty** 👉 [Join Now](https://tazagame.site/girls-whatsapp-groups-for-partnership/)
 - **Best Aunty** 👉 [Join Now](https://tazagame.site/)
-- **Aunty Lovers** 👉 [Join Now](https://tazagame.site/)
+- **Aunty Lovers** 👉 [Join Now](https://tazagame.site/girls-whatsapp-groups-for-partnership/)
 - **Crazy Aunty** 👉 [Join Now](https://tazagame.site/)
-- **Aunty Zone** 👉 [Join Now](https://tazagame.site/)
+- **Aunty Zone** 👉 [Join Now](https://tazagame.site/girls-whatsapp-groups-for-partnership/)
 
 Today in this article I shared the tamil aunty whatsapp groups for friendship with you. You can easily join any group you want with a single click join now button. If you like this today’s article then share it with your friends and more members on social media so that they can join these groups and make friends with India and Pakistan aunty.
